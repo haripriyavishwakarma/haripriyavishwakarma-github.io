@@ -1,4 +1,4 @@
-# haripriyavishwakarma-github.io
+# haripriyavishwakarma.github.io
 
 ## Contact details
 haripriyak246@gmail.com
