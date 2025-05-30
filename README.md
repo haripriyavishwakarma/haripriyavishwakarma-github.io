@@ -1,16 +1,16 @@
 # haripriyavishwakarma-github.io
 
-##Contact details
+## Contact details
 haripriyak246@gmail.com
 +91 8328398188
 
-##About me
+## About me
 
 
-##Acadamic details 
+## Acadamic details 
 
-##Soft skills
+## Soft skills
 
-##Projects
+## Projects
 
 
